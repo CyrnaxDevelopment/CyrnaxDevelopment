@@ -6,4 +6,4 @@
 - 👀 I’m interested in devolpment and moderation in Discord.
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on Protect & Development-Community
-- 📫 Membre of MMC (Moderator MentorShip Community)
+- 📫 Member of MMC (Moderator MentorShip Community)
